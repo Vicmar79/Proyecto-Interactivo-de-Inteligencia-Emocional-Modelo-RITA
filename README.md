@@ -1,0 +1,1 @@
+# Proyecto-Interactivo-de-Inteligencia-Emocional-Modelo-RITA
